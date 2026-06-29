@@ -2,7 +2,7 @@
 
 ## Período
 
-4º Semestre - 01/2023
+4º Semestre - 02/2023
 
 ---
 
